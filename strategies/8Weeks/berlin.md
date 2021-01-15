@@ -80,4 +80,4 @@ The primary idea of this strategy is to reach the dark green status as soon as p
 3. What about vaccination? Wont vaccination already solve the problem?
 >> Yes, I hope it does. And this plan will only provide us with the right time and resources to ensure people get vaccinated in a timely fashion. Right now our medical staff is occupied with the rising cases and this will also help reduce the pressure on them. 
 4. The plan is not clear to me. Can you provide more details? 
->> Absolutely, there could be points which I have missed and I will be more than happy to discuss and help improve the situation. 
+>> Absolutely, there could be points which I have missed and I will be more than happy to discuss and help improve the situation. Email me at: ruknaluak@gmail.com.
